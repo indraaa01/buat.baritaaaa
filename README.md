@@ -1,2 +1,0 @@
-# buat.baritaaaa
-rorrr
